@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello my friend....
 
 - 🔭 I’m currently working on architecting and design systems that serve people first, create real value, and act responsibly at enterprise scale, and IEEE CertifAIEd™ AI
       Ethics Assessor.
