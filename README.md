@@ -11,7 +11,7 @@
   
 - 💬 Ask me about Community, Financial Services, People
   
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/kumarchinnakali/) 
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/kumarchinnakali/) | [Insights Nexus Newsletter](https://www.linkedin.com/mynetwork/network-manager/newsletters/)
   
 - 😄 Pronouns: he/him
   
